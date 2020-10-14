@@ -174,6 +174,23 @@ Julius Maximus Buschus, Civ 6
 "Morgen werde ich mir Vanillepudding machen. Ich werde davor stehen und mich lieben"  
 Jules beim stream ohne komischen Sexkram
 
+!quote 44  
+"Können wir uns drauf einigen nicht willkürlich Organe aus dem Menschen rauszureissen?"  
+Mina bei Surgeon Simulator 2
+
+!quote 45  
+"Die lange grüne, die aussieht wie ein Dildo."  
+Mina - Green Hell
+
+!quote 46  
+"Ich hab' hier diese Dildofrucht und Nüsse!"  
+Mina - Green Hell
+
+!quote 47  
+"Ist das ein Notkeil in deiner Hose oder freust du dich mich zu sehen?"  
+Boney - Green Hell
+
+
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
 Ein herzlichen Dank für ihre Hilfe.
