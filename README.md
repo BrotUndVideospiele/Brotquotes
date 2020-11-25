@@ -190,6 +190,9 @@ Mina - Green Hell
 "Ist das ein Notkeil in deiner Hose oder freust du dich mich zu sehen?"  
 Boney - Green Hell
 
+!quote 48  
+Johnny_Klatchian: "Mina ist dir Jules etwa zu dünn? Kappa " MissZombina: "MEHR FETT"
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
