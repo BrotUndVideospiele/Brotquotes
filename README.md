@@ -193,6 +193,10 @@ Boney - Green Hell
 !quote 48  
 Johnny_Klatchian: "Mina ist dir Jules etwa zu dünn? Kappa " MissZombina: "MEHR FETT"
 
+!quote 49  
+"Manchmal ist es nicht so sinnvoll die Atombombe gleich zu benutzen"  
+Rene bei CoD: Black Ops
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
