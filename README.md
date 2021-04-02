@@ -197,6 +197,10 @@ Johnny_Klatchian: "Mina ist dir Jules etwa zu dünn? Kappa " MissZombina: "MEHR 
 "Manchmal ist es nicht so sinnvoll die Atombombe gleich zu benutzen"  
 Rene bei CoD: Black Ops
 
+!quote 50  
+"Diana mag ich seit der Duschszene!"  
+Jules bei Hitman 3
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
