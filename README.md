@@ -201,6 +201,18 @@ Rene bei CoD: Black Ops
 "Diana mag ich seit der Duschszene!"  
 Jules bei Hitman 3
 
+!quote 51  
+"Gebt es mir roh!"  
+Tony bei Ben&Paper über ihre Essensvorlieben
+
+!quote 52  
+"Kannst du bitte über mich stolpern? Es würde mich freuen wenn du über mich stolperst!"  
+Géraldine als betrunkene Nefari bei Ben&Paper
+
+!quote 53  
+"Ich wollte halt unbedingt mal ein kleines Baby zertreten"  
+Jules bei Dead Space
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
