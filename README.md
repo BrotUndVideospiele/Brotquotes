@@ -213,6 +213,10 @@ Géraldine als betrunkene Nefari bei Ben&Paper
 "Ich wollte halt unbedingt mal ein kleines Baby zertreten"  
 Jules bei Dead Space
 
+!quote 55  
+„Du musst halt nur gucken, mit welcher Kackigkeit du zurecht kommst.“  
+Géraldine während Dead Space
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
