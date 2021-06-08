@@ -213,6 +213,10 @@ Géraldine als betrunkene Nefari bei Ben&Paper
 "Ich wollte halt unbedingt mal ein kleines Baby zertreten"  
 Jules bei Dead Space
 
+!quote 54  
+"Wie schlimm die Dark Souls Macher in der Schule gehänselt werden mussten um so ein Spiel zu machen"  
+Jules bei Dark Souls 1
+
 !quote 55  
 „Du musst halt nur gucken, mit welcher Kackigkeit du zurecht kommst.“  
 Géraldine während Dead Space
