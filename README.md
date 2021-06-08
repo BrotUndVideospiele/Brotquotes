@@ -221,6 +221,10 @@ Jules bei Dark Souls 1
 „Du musst halt nur gucken, mit welcher Kackigkeit du zurecht kommst.“  
 Géraldine während Dead Space
 
+!quote 56  
+"10 kg kühler“  
+Jules nach Dead Space
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
