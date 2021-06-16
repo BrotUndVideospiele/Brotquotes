@@ -225,6 +225,10 @@ Géraldine während Dead Space
 "10 kg kühler“  
 Jules nach Dead Space
 
+!quote 57  
+"Ich hab schon ein Gewissen"    
+Jules, E3 Pre Talk“
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
