@@ -229,6 +229,14 @@ Jules nach Dead Space
 "Ich hab schon ein Gewissen"    
 Jules, E3 Pre Talk“
 
+!quote 58  
+"Vielleicht würd ich eine poppen"  
+Jules, Dark Souls 1
+
+!quote 59  
+"Wir müssen heute noch mal richtig ficken!"  
+Gerry bei Gabriel Knight
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
