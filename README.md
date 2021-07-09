@@ -237,6 +237,22 @@ Jules, Dark Souls 1
 "Wir müssen heute noch mal richtig ficken!"  
 Gerry bei Gabriel Knight
 
+!quote 60  
+"Wenn ich auf dem Klo bin genieß ich den Scheiß!"  
+Jules - Gabriel Knight 2
+
+!quote 61  
+"Du hast geweint also hab ich gewonnen"  
+Jules zu Gerry
+
+!quote 62  
+"das kitzelt"- "was?" -"die Schläge von den nackten Menschen"  
+Jules bei Dark souls
+
+!quote 63  
+"Ich halte es nicht mehr aus.. wir haben gesagt das wir heute noch Sex haben"  
+Jules bei Gabriel Knight
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
