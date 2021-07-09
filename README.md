@@ -257,6 +257,10 @@ Jules bei Gabriel Knight
 "Möchtest du mit mir in den Sexdungeon gehen?"  
 Jules bei Gabriel Knight
 
+!quote 66  
+"ich würde jetzt ehrlich gesagt lieber Sims anschmeißen und ein bisschen im Schrank bumsen"  
+Gerry bei Gabriel Knight 2
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
