@@ -249,8 +249,12 @@ Jules zu Gerry
 "das kitzelt"- "was?" -"die Schläge von den nackten Menschen"  
 Jules bei Dark souls
 
-!quote 63  
+!quote 63 und 64  
 "Ich halte es nicht mehr aus.. wir haben gesagt das wir heute noch Sex haben"  
+Jules bei Gabriel Knight
+
+!quote 65  
+"Möchtest du mit mir in den Sexdungeon gehen?"  
 Jules bei Gabriel Knight
 
 
