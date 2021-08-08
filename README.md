@@ -261,6 +261,22 @@ Jules bei Gabriel Knight
 "ich würde jetzt ehrlich gesagt lieber Sims anschmeißen und ein bisschen im Schrank bumsen"  
 Gerry bei Gabriel Knight 2
 
+!quote 67  
+"WAH! Ich dachte gerade, da ist irgendson Sumpfwesen. Aber es ist einfach nur eine sehr wenig saturierte Frau. Die soll sich mal ein bisschen Kontrast holen"  
+Jules in Gabriel Knight 2
+
+!quote 68  
+"Und ich habs mit Liebe bezahlt!"  
+Gerry über das Spaghettieis
+
+!quote 69  
+"Steck rein!"  
+Gerry zu Jules bei The Evil Within
+
+!quote 70  
+"es sind die verstümmelte Leichen! Ich bin so glücklich"  
+Gerry bei The Evil Within
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
