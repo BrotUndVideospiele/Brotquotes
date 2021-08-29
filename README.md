@@ -277,6 +277,11 @@ Gerry zu Jules bei The Evil Within
 "es sind die verstümmelte Leichen! Ich bin so glücklich"  
 Gerry bei The Evil Within
 
+!quote 71  
+"Ey Gerry, kannst du nicht nochmal schwanger werden?" -"Das wär schön, ja!"  
+Jules zu Gerry bei Crusader Kings 3
+
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
