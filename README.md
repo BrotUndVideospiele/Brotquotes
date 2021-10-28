@@ -281,6 +281,21 @@ Gerry bei The Evil Within
 "Ey Gerry, kannst du nicht nochmal schwanger werden?" -"Das wär schön, ja!"  
 Jules zu Gerry bei Crusader Kings 3
 
+!quote 72  
+"Ich hab verschiedene Härten"  
+Jules beim auspacken
+
+!quote 73  
+"Irgendwie bin ich nicht befriedigt und es war viel zu kurz"  
+Jules bei LiS
+
+!quote 74  
+"ich wäre glaube ich eine gute Stangenwaffe"  
+Jules bei Sternenmacht
+
+!quote 75  
+"Man kann es nicht an der Länge messen sondern an der Quality"  
+Jules bei House of Ashes
 
 
 ## Credits
