@@ -297,6 +297,14 @@ Jules bei Sternenmacht
 "Man kann es nicht an der Länge messen sondern an der Quality"  
 Jules bei House of Ashes
 
+!quote 76  
+"Kann ich mich eigentlich selber als Mündel irgendwo reinballern?"  
+Roman im CK3 Multiplayer
+
+!quote 77  
+"wie antiklimaktisch war denn das? Ich komm hier nicht rein."  
+Jules bei Forza 5
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
