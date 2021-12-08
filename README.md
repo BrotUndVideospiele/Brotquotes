@@ -163,7 +163,7 @@ Jules - I Am Bread
 Mina und Jules bei The Escapists 2
 
 !quote 41  
-,,Physik wird ignoriert, wir machen´s kompliziert."  
+"Physik wird ignoriert, wir machen´s kompliziert."  
 Jules bei Half life 2
 
 !quote 42  
