@@ -321,6 +321,14 @@ Jules, CK3
 "Für Nippel komm ich von der Weihnachtsfeier"  
 Anna
 
+!quote 82  
+"irgendwie vermisse ich Gabriel Knight"  
+Jules
+
+!quote 83  
+"auf das rein raus bin ich schon stolz"  
+Gerry
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
