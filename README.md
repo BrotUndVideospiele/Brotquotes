@@ -305,6 +305,22 @@ Roman im CK3 Multiplayer
 "wie antiklimaktisch war denn das? Ich komm hier nicht rein."  
 Jules bei Forza 5
 
+!quote 78  
+"So ich hol ihn jetzt erstmal raus"  
+Jules, Dark Souls 2
+
+!quote 79  
+"Soll ich meine Hose auszeiehen?" - "Ja, klar!"  
+Jules zu Gerry vor GTA San Andreas- The Definitive Edition
+
+!quote 80  
+"ich möchte nur einmal wen kastrieren!"  
+Jules, CK3
+
+!quote 81  
+"Für Nippel komm ich von der Weihnachtsfeier"  
+Anna
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
