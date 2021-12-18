@@ -329,6 +329,10 @@ Jules
 "auf das rein raus bin ich schon stolz"  
 Gerry
 
+!quote 84  
+"Weihnachten fickt richtig hart!"  
+Gerrys Abschlusswort 2021
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
