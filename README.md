@@ -333,6 +333,10 @@ Gerry
 "Weihnachten fickt richtig hart!"  
 Gerrys Abschlusswort 2021
 
+!quote 85  
+"wow das ist verletzend ich bin sechs!"  
+Gerry und der Tamagotchi
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
