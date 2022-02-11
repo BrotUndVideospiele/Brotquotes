@@ -337,6 +337,10 @@ Gerrys Abschlusswort 2021
 "wow das ist verletzend ich bin sechs!"  
 Gerry und der Tamagotchi
 
+!quote 86  
+„Kostet das Furzen eigentlich etwas?“  
+RainerZufall1986
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
