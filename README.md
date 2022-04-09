@@ -341,6 +341,14 @@ Gerry und der Tamagotchi
 „Kostet das Furzen eigentlich etwas?“  
 RainerZufall1986
 
+!quote 87  
+"Die sind halt so hinter mir her geschleift, an meinem Stick dran"  
+Jules über Emo Girls
+
+!quote 88  
+"Jules beendet einfach meine 69"  
+Anna
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
