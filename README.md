@@ -349,6 +349,10 @@ Jules über Emo Girls
 "Jules beendet einfach meine 69"  
 Anna
 
+!quote 89  
+"Das befriedigt mich alles nicht"  
+Jules
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
