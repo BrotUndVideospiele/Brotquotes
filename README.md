@@ -353,6 +353,10 @@ Anna
 "Das befriedigt mich alles nicht"  
 Jules
 
+!quote 90  
+„Wer rennt denn bitte mit nem Uterus durch die Gegend?! Also, außer Frauen…“  
+AK bei Elden Ring
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
