@@ -354,8 +354,28 @@ Anna
 Jules
 
 !quote 90  
-„Wer rennt denn bitte mit nem Uterus durch die Gegend?! Also, außer Frauen…“  
-AK bei Elden Ring
+"Wer rennt denn bitte mit nem Uterus durch die Gegend?! Also, außer Frauen…"  
+AK bei Elden Ring  
+
+!quote 91  
+"Jeder nimmt sein Mädel in die Hand"  
+Jules
+
+!quote 92  
+"There's a time for chucks and a there's a time for heels"  
+Jules
+
+!quote 93  
+"Ich möchte deine Peitschen"  
+Jules bei Elden Ring
+
+!quote 94  
+"Kann ich das nicht irgendwie raus poppen?"  
+Jules auf dem Weg zur Apotheke
+
+!quote 95  
+"Dein Horn, heftig. Ramm mir das nicht rein"  
+Jules
 
 
 ## Credits
