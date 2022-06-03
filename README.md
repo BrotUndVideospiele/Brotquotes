@@ -377,6 +377,14 @@ Jules auf dem Weg zur Apotheke
 "Dein Horn, heftig. Ramm mir das nicht rein"  
 Jules
 
+!quote 96  
+"Und ich wollte nicht den Chat fragen"  
+Jules beim Umfang
+
+!quote 97  
+"Ich weiß nicht wie eng ich es mag"  
+Jules
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
