@@ -385,6 +385,20 @@ Jules beim Umfang
 "Ich weiß nicht wie eng ich es mag"  
 Jules
 
+!quote 98  
+"Muss ich die jetzt alle erschießen und wegtragen?"  
+Jules bei JW2
+
+!quote 99  
+ToDo: Muss noch nachgetragen weren.
+
+!quote 100  
+ToDo: Muss noch nachgetragen weren.
+
+!quote 101  
+"Ich muss euch noch aussaugen bevor ihr schlafen geht"  
+Jules bei Cult of the Lamb
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
