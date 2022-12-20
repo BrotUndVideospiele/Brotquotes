@@ -399,6 +399,10 @@ ToDo: Muss noch nachgetragen weren.
 "Ich muss euch noch aussaugen bevor ihr schlafen geht"  
 Jules bei Cult of the Lamb
 
+!quote 112  
+"Der Drogencocktail der Natur ist nunmal ein Original"  
+Moerp Superseducer
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
