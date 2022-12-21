@@ -399,6 +399,46 @@ ToDo: Muss noch nachgetragen weren.
 "Ich muss euch noch aussaugen bevor ihr schlafen geht"  
 Jules bei Cult of the Lamb
 
+!quote 102  
+"Wir haben die göttliche Inspiration für ein Klo"  
+Jules - Cult of the Lamb
+
+!quote 103  
+"Jo nimmt safe crack"  
+Jules zu seinem Bruder bei Jackbox
+
+!quote 104  
+„ich kann doch nichts, warte mal“  
+Jules, 2022
+
+!quote 105  
+"Ich hätt' schon Bock Fußcontent zu machen. Ich hab echt für 'nen Mann extrem schöne Füße..."  
+Jules 2022
+
+!quote 106  
+Ich würde mich wirklich freuen, wenn ihr das mit mir zusammen das erste mal erleben würdet.“  
+Jules, 2022
+
+!quote 107  
+"Und nach dem Sex geh ich meine Mama besuchen"  
+Jules, 2022, Sims 4
+
+!quote 108  
+"ich hab Nüsse, kann ich damit was machen?"  
+Jules, Just Chatting
+
+!quote 109  
+"Vor dem Regenwurm hab ich irgendwie Angst..."  
+Jules bei Inscryption
+
+!quote 110  
+"Wenn der romantic Jules einen DnD Char wäre hätte er einen sehr hohen Initiativewert."  
+Jules bei Super Seducer
+
+!quote 111  
+"Kinder, bumst nicht ohne Kondom, auch eure beste Freundin nicht!"  
+Jules bei Super Seducer
+
 !quote 112  
 "Der Drogencocktail der Natur ist nunmal ein Original"  
 Moerp Superseducer
