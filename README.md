@@ -390,10 +390,12 @@ Jules
 Jules bei JW2
 
 !quote 99  
-ToDo: Muss noch nachgetragen weren.
+"Kann man eigentlich Kinder töten?"  
+Jules, Under the Dom
 
 !quote 100  
-ToDo: Muss noch nachgetragen weren.
+"Ich bin ein Quickie ey"  
+Jules, As Dusk falls
 
 !quote 101  
 "Ich muss euch noch aussaugen bevor ihr schlafen geht"  
