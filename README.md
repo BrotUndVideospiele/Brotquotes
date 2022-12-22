@@ -445,6 +445,22 @@ Jules bei Super Seducer
 "Der Drogencocktail der Natur ist nunmal ein Original"  
 Moerp Superseducer
 
+!quote 113  
+"Wie unglaublich geil sind die Bläser da"  
+Jules, 2022, Just Chatting
+
+!quote 115  
+"Ich war auf dem Klo und hab mir nen Drink gemacht"  
+Jules
+
+!quote 117  
+"Denk an Jules." "Ja, ich denk schon die ganze Zeit an Jules, auch. Also nicht immer."  
+Der Pole
+
+!quote 118  
+"Ich in hier nur zum trinken"  
+Anna
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
