@@ -461,6 +461,10 @@ Der Pole
 "Ich in hier nur zum trinken"  
 Anna
 
+!quote 119  
+"Ist wie bei Tinder. Du darfst es nur ganz kurz angucken und dann erst wieder anfassen wenn du's benutzt"  
+Anna Weihnachten 2022
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
