@@ -469,6 +469,10 @@ Anna Weihnachten 2022
 "Auf der Weihnachtsfeier sind einige Weichteile kaputt gegangen"  
 SirMetalizer, Weihnachten '22
 
+!quote 121  
+"Triebtäter muss ich appreciaten"  
+Roman, Weihnachten '22
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
