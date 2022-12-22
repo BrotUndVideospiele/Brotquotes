@@ -465,6 +465,10 @@ Anna
 "Ist wie bei Tinder. Du darfst es nur ganz kurz angucken und dann erst wieder anfassen wenn du's benutzt"  
 Anna Weihnachten 2022
 
+!quote 120  
+"Auf der Weihnachtsfeier sind einige Weichteile kaputt gegangen"  
+SirMetalizer, Weihnachten '22
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
