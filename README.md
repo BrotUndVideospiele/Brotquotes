@@ -449,9 +449,15 @@ Moerp Superseducer
 "Wie unglaublich geil sind die Bläser da"  
 Jules, 2022, Just Chatting
 
+!quote 114  
+Dieser Quote wurde wieder gelöscht.
+
 !quote 115  
 "Ich war auf dem Klo und hab mir nen Drink gemacht"  
 Jules
+
+!quote 116  
+Dieser Quote wurde wieder gelöscht.
 
 !quote 117  
 "Denk an Jules." "Ja, ich denk schon die ganze Zeit an Jules, auch. Also nicht immer."  
