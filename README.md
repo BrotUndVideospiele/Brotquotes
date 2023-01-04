@@ -479,6 +479,14 @@ SirMetalizer, Weihnachten '22
 "Triebtäter muss ich appreciaten"  
 Roman, Weihnachten '22
 
+!quote 122  
+"Sein Nippel muss doch so hart zerschmirgelt sein, sein linker."  
+Jules - GoW
+
+!quote 123  
+"Wir müssen mal wieder Eingeborene töten, meine komplette Rüstung ist weg..."  
+itzjanina - Green Hell
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
