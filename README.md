@@ -487,6 +487,14 @@ Jules - GoW
 "Wir müssen mal wieder Eingeborene töten, meine komplette Rüstung ist weg..."  
 itzjanina - Green Hell
 
+!quote 124  
+"Ich bin ja schließlich nicht auf der Suche nach dem perfekten Glück, ich bin auf der Suche nach einer Distraction davon dass ich das nie haben werde..."  
+Jules - Super Seducer 2
+
+!quote 125  
+"Das ist auch beim Zweier so... da willst Du random was machen ohne das es irgendwas bringt"  
+Jules, GK 3
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
