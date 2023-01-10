@@ -499,6 +499,10 @@ Jules, GK 3
 "Ich habe solang nicht mehr geschlafen, weil ich ständig Pilze fresse."  
 Janina in Green Hell
 
+!quote 127  
+"Ich mag es wenn du mich fragst ob du mein Fleisch haben kannst"  
+Jules bei Green Hell
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
