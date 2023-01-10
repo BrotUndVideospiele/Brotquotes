@@ -503,6 +503,10 @@ Janina in Green Hell
 "Ich mag es wenn du mich fragst ob du mein Fleisch haben kannst"  
 Jules bei Green Hell
 
+!quote 128  
+"Komm doch mit zum See und dann waschen wir dich"  
+Jules, Green Hell
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
