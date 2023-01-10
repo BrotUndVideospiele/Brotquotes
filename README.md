@@ -495,6 +495,10 @@ Jules - Super Seducer 2
 "Das ist auch beim Zweier so... da willst Du random was machen ohne das es irgendwas bringt"  
 Jules, GK 3
 
+!quote 126  
+"Ich habe solang nicht mehr geschlafen, weil ich ständig Pilze fresse."  
+Janina in Green Hell
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
