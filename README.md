@@ -527,6 +527,10 @@ Jules, 2023
 "Also Chat, ihr macht jetzt Stripclub und ich mach One Night Stand"  
 Jules, 2023
 
+!quote 134  
+"Auf Sex hätt ich auch Bock"  
+Jules, Dead Space
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
