@@ -507,6 +507,26 @@ Jules bei Green Hell
 "Komm doch mit zum See und dann waschen wir dich"  
 Jules, Green Hell
 
+!quote 129  
+"Chat ihr seid auch son sexueller Opener ganz ehrlich"  
+Jules, Super Seducer
+
+!quote 130  
+"Und dann mach ich Stripclub"  
+Jules, Super Seducer
+
+!quote 131  
+"Hätte nichts gegen ein bisschen Pool-Sex gehabt"  
+Jules, Plague Tale Requiem
+
+!quote 132  
+"Wir hatten lange keinen Viseospiel-Sex mehr auf diesem Kanal, oder?"  
+Jules, 2023
+
+!quote 133  
+"Also Chat, ihr macht jetzt Stripclub und ich mach One Night Stand"  
+Jules, 2023
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
