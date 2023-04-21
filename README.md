@@ -531,6 +531,46 @@ Jules, 2023
 "Auf Sex hätt ich auch Bock"  
 Jules, Dead Space
 
+!quote 135  
+"Da hat sich direkt was bei mir geregt"  
+Jules, Super Seducer
+
+!quote 136  
+"Ich weiß nicht wie man es sanft macht, Chat. Das ist mein Problem"  
+Jules, Hogwarts Legacy
+
+!quote 137  
+"Kann ich jetzt trotzdem auf Boneys Girl reiten, obwohl sie schwanger ist?"  
+Jules, Hogwarts Legacy, 2023
+
+!quote 138  
+"Dann reit ich mal auf Leons Mom hier weiter"  
+Jules, Hogwarts Legacy, 2023
+
+!quote 139  
+"Das ist doch kein Knüppel bro, das ist doch richtig geil"  
+Jules, Wo Long
+
+!quote 140  
+"Ich lob mich ja echt nicht selten oft"  
+Jules, 2023
+
+!quote 141  
+"Ich hätt jetzt natürlich nicht unr Frauen genommen, ne?!"  
+Jules, 2023
+
+!quote 142  
+"Ihr müsst nicht viel machen, ihr müsst nur kommen"  
+Jules, 2023
+
+!quote 143  
+"Ich weiß auch nicht, dieser Drink macht micht mega horny gerade..."  
+Jules beim Communitytreffen 2023
+
+!quote 144  
+"Ich glaub ich bin in deinem Loch, aber ich find mein eigenes nicht"  
+Jules, München 2023
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
