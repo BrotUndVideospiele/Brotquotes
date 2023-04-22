@@ -571,6 +571,10 @@ Jules beim Communitytreffen 2023
 "Ich glaub ich bin in deinem Loch, aber ich find mein eigenes nicht"  
 Jules, München 2023
 
+!quote 145  
+"Noch einen Tod überleb ich nicht"  
+Jules, resi
+
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
