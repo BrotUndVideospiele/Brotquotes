@@ -575,6 +575,17 @@ Jules, München 2023
 "Noch einen Tod überleb ich nicht"  
 Jules, resi
 
+!quote 146  
+"Macht mal nicht sofort das Spiel kaputt"  
+Jules zum Chat in King of the Castle
+
+!quote 147  
+"Junge. Wie lang kann der eigentlich?"  
+Jules, 2023
+
+!quote 148  
+"Ich hab ihm auch nochmal in den Kopf geschossen, aber der war schon vorher tot"  
+Jules, redfall
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
