@@ -587,6 +587,10 @@ Jules, 2023
 "Ich hab ihm auch nochmal in den Kopf geschossen, aber der war schon vorher tot"  
 Jules, redfall
 
+!quote 149  
+"Wie lange müssen wir noch zusammen spielen?"  
+Janina bei Redfall
+
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
 Ein herzlichen Dank für ihre Hilfe.
