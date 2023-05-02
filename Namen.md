@@ -12,3 +12,6 @@ Stachelficker
 
 Fingergefahr  
 (Redfall - 02.05.2023)
+
+Grabglocke  
+(Redfall - 02.05.2023)
