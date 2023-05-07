@@ -15,3 +15,6 @@ Fingergefahr
 
 Grabglocke  
 (Redfall - 02.05.2023)
+
+Purpurrote Wackelnadel  
+(Star Wars - Jedi: Survivor - 07.05.2023)
