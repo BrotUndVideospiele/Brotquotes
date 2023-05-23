@@ -24,3 +24,6 @@ Geile Artischocke
 
 Purpurrote Wackelnadel  
 (Star Wars - Jedi: Survivor - 23.05.2023)
+
+Sumpfschrecken  
+(Star Wars - Jedi: Survivor - 23.05.2023)
