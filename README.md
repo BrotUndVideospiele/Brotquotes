@@ -591,6 +591,10 @@ Jules, redfall
 "Wie lange müssen wir noch zusammen spielen?"  
 Janina bei Redfall
 
+!quote 150  
+"Seh ich aus wie ein Dip-Boy?"  
+Jules, 2023
+
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
 Ein herzlichen Dank für ihre Hilfe.
