@@ -595,6 +595,14 @@ Janina bei Redfall
 "Seh ich aus wie ein Dip-Boy?"  
 Jules, 2023
 
+!quote 151  
+"Keine 10 Pferde kriegen mich nochmal in Victoria rein..."  
+Jules 2023
+
+!quote 152  
+"sag stop wanni ch fertig bin mit rausholen"  
+Jules, 2023
+
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
 Ein herzlichen Dank für ihre Hilfe.
