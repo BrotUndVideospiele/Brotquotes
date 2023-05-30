@@ -24,3 +24,6 @@ Geile Artischocke
 
 Sumpfschrecken  
 (Star Wars - Jedi: Survivor - 23.05.2023)
+
+Klebriger Schleicher  
+(Star Wars - Jedi: Survivor - 30.05.2023)
