@@ -27,3 +27,6 @@ Sumpfschrecken
 
 Klebriger Schleicher  
 (Star Wars - Jedi: Survivor - 30.05.2023)
+
+Feuriger Schlitzer  
+(Diablo IV - 02.06.2023)
