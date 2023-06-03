@@ -30,3 +30,6 @@ Klebriger Schleicher
 
 Feuriger Schlitzer  
 (Diablo IV - 02.06.2023)
+
+Bebende Masse - Endloser Parasit  
+(Diablo IV - 03.06.2023)
