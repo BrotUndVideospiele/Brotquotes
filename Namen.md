@@ -33,3 +33,6 @@ Feuriger Schlitzer
 
 Bebende Masse - Endloser Parasit  
 (Diablo IV - 03.06.2023)
+
+Korrosiver Flegel  
+(Baldur's Gate 3 - 15.05.2023)
