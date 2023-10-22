@@ -36,3 +36,6 @@ Bebende Masse - Endloser Parasit
 
 Korrosiver Flegel  
 (Baldur's Gate 3 - 15.05.2023)
+
+Verdächtige Spalte ... Wobei er lieber "Verdächtiger Spalter" gehießen hätte, so wie Jochen  
+(Baldur's Gate 3 - 13.10.2023)
