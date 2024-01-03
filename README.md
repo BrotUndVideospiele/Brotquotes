@@ -600,8 +600,24 @@ Jules, 2023
 Jules 2023
 
 !quote 152  
-"sag stop wanni ch fertig bin mit rausholen"  
+"sag stop wann ich fertig bin mit rausholen"  
 Jules, 2023
+
+!quote 153  
+"Ich hab jetzt einmal meinen Penis gezeigt, das muss reichen pro Stream"  
+Jules bei Baldurs Gate 3
+
+!quote 154  
+"Der Ochse und ich sind cool!"  
+Jules bei Baldur's Gate 3
+
+!quote 155  
+"Du hast Brusthaare, nutze sie"  
+Anna zu Jules
+
+!quote 156  
+"Eine Serie weitergucken, und dann so tun als würde man sie nicht kennen ist ein schlimmerer Betrug als nen Orgasmus vortäuschen"  
+Jules, Alan Wake 2
 
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
