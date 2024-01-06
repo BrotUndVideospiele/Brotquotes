@@ -39,3 +39,6 @@ Korrosiver Flegel
 
 Verdächtige Spalte ... Wobei er lieber "Verdächtiger Spalter" gehießen hätte, so wie Jochen  
 (Baldur's Gate 3 - 13.10.2023)
+
+Mächen vom Ort  
+(Alan Wake 2 - 06.01.2024)
