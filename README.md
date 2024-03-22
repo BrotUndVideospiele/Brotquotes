@@ -619,6 +619,19 @@ Anna zu Jules
 "Eine Serie weitergucken, und dann so tun als würde man sie nicht kennen ist ein schlimmerer Betrug als nen Orgasmus vortäuschen"  
 Jules, Alan Wake 2
 
+!quote 157  
+"Streiten und Sex, ey meine beiden Lieblingsdinge. Am besten gleichzeitig"  
+Jules, 2024
+
+!quote 158  
+"Tötet der Feuerball auch das kleine Mädchen...?"  
+Jules bei Baldur's Gate 3
+
+!quote 159  
+"Das kommt drauf an, ob du eine brave Sklavin bist"  
+Jules zu Bambi, Dragons Dogma 2
+
+
 ## Credits
 Die initiale Liste wurde mit der Hilfe von der bezaubernden und lieben Sternchenkeks aus der BuV Community erstellt.  
 Ein herzlichen Dank für ihre Hilfe.
